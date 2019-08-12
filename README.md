@@ -39,7 +39,8 @@ Timbre+ -- good night time hangout -- there's a band and food and stuff
 - Ramen -- quite a few nice places I can't remember. Ippudo is not bad.  
 - Popiah (not a meal, more a snack)
 - Snacky stuff: Old Chang Kee (various outlets) -- curry puff and other stuff
-- 
+- Nasi Lemak
+- Ba Ku Teh 
 
 
 ### Breakfast
@@ -54,6 +55,7 @@ Timbre+ -- good night time hangout -- there's a band and food and stuff
     - https://sethlui.com/best-korean-bingsus-singapore/
     - https://shopee.sg/blog/best-bingsu-places-singapore/
 - Bengawan Solo 
+- Rochor beancurd 
 
 ### Bubble tea
 - Koi

@@ -13,5 +13,27 @@ Botanic gardens
 ## Food
 - Prive at Chijmes -- they have outdoor sitting, nice ambience.    
 - Seafood -- either Jumbo seafood (any of their outlets) or new ubin seafood    
-    - New ubin: Really good steak, chili crab, black pepper crab and fried baby squid
+    - New ubin seafood: Really good steak, chili crab, black pepper crab and fried baby squid
+- Wimbly Lu -- dessert place, nice waffles with ice cream.  
+- Ramen -- quite a few nice places I can't remember. Ippudo is not bad.   
+- Korean bbq -- somewhere around tanjong pagar area.  
+- Prata. Any of the following:
+    - Srisun express (at serangoon gardens)
+    - R.K. eating house
+    - Roti Prata house
+- Dim sum
+    - Swee choon 
+    - Tim Ho wan
+- Char Kway Teow -- various places around singapore; google which one is nice
+- Katong Laksa
+- Tiong bahru bakery
+- Chomp chomp
+    - hokkien mee
+    - fried carrot cake
+    - satay
+    - sambal stingray
+    - sugarcane juice
+
+
+Bubble tea
 - 

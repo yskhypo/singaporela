@@ -14,7 +14,6 @@ Botanic gardens
 - Prive at Chijmes -- they have outdoor sitting, nice ambience.    
 - Seafood -- either Jumbo seafood (any of their outlets) or new ubin seafood    
     - New ubin seafood: Really good steak, chili crab, black pepper crab and fried baby squid
-- Wimbly Lu -- dessert place, nice waffles with ice cream.  
 - Ramen -- quite a few nice places I can't remember. Ippudo is not bad.   
 - Korean bbq -- somewhere around tanjong pagar area.  
 - Prata. Any of the following:
@@ -34,6 +33,13 @@ Botanic gardens
     - sambal stingray
     - sugarcane juice
 
+### dessert
+- Yole (frozen yoghurt)
+- Wimbly Lu -- dessert place, nice waffles with ice cream.  
 
-Bubble tea
-- 
+### Bubble tea
+- Koi
+- Playmade
+- Gongcha
+
+

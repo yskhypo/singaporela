@@ -36,7 +36,9 @@ Bugis street -- hanging out, cheap stuff
     - satay
     - sambal stingray
     - sugarcane juice
-- Ramen -- quite a few nice places I can't remember. Ippudo is not bad.   
+- Ramen -- quite a few nice places I can't remember. Ippudo is not bad.  
+- Popiah (not a meal, more a snack)
+- Snacky stuff: Old Chang Kee (various outlets) -- curry puff and other stuff
 
 ### dessert
 - Yole (frozen yoghurt, various outlets)

@@ -29,7 +29,7 @@ Bugis street -- hanging out, cheap stuff
 - Char Kway Teow -- various places around singapore; google which one is nice
 - Katong Laksa
 - Tiong bahru bakery
-- Chomp chomp
+- Chomp chomp - near Wimbly lu, SriSun express and RK
     - hokkien mee
     - fried carrot cake
     - satay

@@ -17,8 +17,8 @@ Bugis street -- hanging out, cheap stuff
 - Prive at Chijmes -- they have outdoor sitting, nice ambience.    
 - Seafood -- either Jumbo seafood (any of their outlets) or new ubin seafood    
     - New ubin seafood: Really good steak, chili crab, black pepper crab and fried baby squid
-- Ramen -- quite a few nice places I can't remember. Ippudo is not bad.   
 - Korean bbq -- somewhere around tanjong pagar area.  
+- Chicken rice! 
 - Prata. Any of the following:
     - Srisun express (at serangoon gardens)
     - R.K. eating house
@@ -28,6 +28,7 @@ Bugis street -- hanging out, cheap stuff
     - Tim Ho wan (many outlets)
 - Char Kway Teow -- various places around singapore; google which one is nice
 - Katong Laksa
+- Ba chor mee
 - Tiong bahru bakery
 - Chomp chomp  near Wimbly lu, SriSun express and RK
     - hokkien mee
@@ -35,14 +36,23 @@ Bugis street -- hanging out, cheap stuff
     - satay
     - sambal stingray
     - sugarcane juice
+- Ramen -- quite a few nice places I can't remember. Ippudo is not bad.   
 
 ### dessert
-- Yole (frozen yoghurt)
-- Wimbly Lu -- dessert place, nice waffles with ice cream.  
+- Yole (frozen yoghurt, various outlets)
+- Wimbly Lu -- dessert place, nice waffles with ice cream. 
+- ah chew desserts (chinese dessert place)
+- Bingsu
+    - https://sethlui.com/best-korean-bingsus-singapore/
+    - https://shopee.sg/blog/best-bingsu-places-singapore/
+- Bengawan Solo 
 
 ### Bubble tea
 - Koi
 - Playmade
 - Gongcha
 
+## Clubs and bars
+- Marquee - club with slide and ferris wheel
+- Operation dagger - quite cool drinks
 

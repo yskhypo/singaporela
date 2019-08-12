@@ -25,11 +25,11 @@ Bugis street -- hanging out, cheap stuff
     - Roti Prata house
 - Dim sum
     - Swee choon 
-    - Tim Ho wan
+    - Tim Ho wan (many outlets)
 - Char Kway Teow -- various places around singapore; google which one is nice
 - Katong Laksa
 - Tiong bahru bakery
-- Chomp chomp - near Wimbly lu, SriSun express and RK
+- Chomp chomp
     - hokkien mee
     - fried carrot cake
     - satay

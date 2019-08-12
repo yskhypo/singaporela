@@ -11,7 +11,7 @@ Botanic gardens
 Funan mall -- cool tech mall.  
 Ion orchard -- shopping and stuff
 Bugis street -- hanging out, cheap stuff
-
+Timbre+ -- good night time hangout -- there's a band and food and stuff
 
 ## Food
 - Prive at Chijmes -- they have outdoor sitting, nice ambience.    
@@ -39,6 +39,12 @@ Bugis street -- hanging out, cheap stuff
 - Ramen -- quite a few nice places I can't remember. Ippudo is not bad.  
 - Popiah (not a meal, more a snack)
 - Snacky stuff: Old Chang Kee (various outlets) -- curry puff and other stuff
+- 
+
+
+### Breakfast
+- Ya Kun (kaya toast set breakfast with half boiled eggs)
+- 
 
 ### dessert
 - Yole (frozen yoghurt, various outlets)

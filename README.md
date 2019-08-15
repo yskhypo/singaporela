@@ -61,6 +61,7 @@ Timbre+ -- good night time hangout -- there's a band and food and stuff
 - Koi
 - Playmade
 - Gongcha
+- LiHo
 
 ## Clubs and bars
 - Marquee - club with slide and ferris wheel

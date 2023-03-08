@@ -7,11 +7,11 @@ Jewel, the airport -- theres a netting playground on the roof. also the dome is 
 Sentosa -- Luge (fun, bumper car race type thing), Siloso beach or any beach there.  
 Take a cable car to Sentosa.  
 East coast -- roller blading if you want. its also a beach and stuff.  
-Botanic gardens 
+Botanic gardens -- nature.  
 Funan mall -- cool tech mall.  
-Ion orchard -- shopping and stuff
-Bugis street -- hanging out, cheap stuff
-Timbre+ -- good night time hangout -- there's a band and food and stuff
+Ion orchard -- shopping and stuff. 
+Bugis street -- hanging out, cheap stuff. 
+Timbre+ -- good night time hangout -- there's a band and food and stuff. 
 
 ## Food
 - Prive at Chijmes -- they have outdoor sitting, nice ambience.    

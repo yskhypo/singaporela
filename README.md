@@ -45,7 +45,7 @@ Timbre+ -- good night time hangout -- there's a band and food and stuff.
 
 ### Breakfast
 - Ya Kun (kaya toast set breakfast with half boiled eggs)
-  
+  ok
 
 ### dessert
 - Yole (frozen yoghurt, various outlets)

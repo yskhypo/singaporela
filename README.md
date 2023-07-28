@@ -6,12 +6,17 @@ Zoo, in particular the night safari; Jurong bird park is also probably nice.
 Jewel, the airport -- theres a netting playground on the roof. also the dome is cool. also there's quite a bit of nice food there.  
 Sentosa -- Luge (fun, bumper car race type thing), Siloso beach or any beach there.  
 Take a cable car to Sentosa.  
-East coast -- roller blading if you want. its also a beach and stuff.  
+East coast -- roller blading if you want. its also a beach and stuff.  cycling
 Botanic gardens -- nature.  
 Funan mall -- cool tech mall.  
 Ion orchard -- shopping and stuff. 
 Bugis street -- hanging out, cheap stuff. 
 Timbre+ -- good night time hangout -- there's a band and food and stuff. 
+Haji Lane / Arab Street / Kampong Glam
+Clarke Quay
+Little India / Chinatown
+Fort Canning Park
+
 
 ## Food
 - Prive at Chijmes -- they have outdoor sitting, nice ambience.    
@@ -40,12 +45,14 @@ Timbre+ -- good night time hangout -- there's a band and food and stuff.
 - Popiah (not a meal, more a snack)
 - Snacky stuff: Old Chang Kee (various outlets) -- curry puff and other stuff
 - Nasi Lemak
-- Ba Ku Teh 
+- Ba Ku Teh
+- Satay
+- Lau Pa Sat
 
 
 ### Breakfast
 - Ya Kun (kaya toast set breakfast with half boiled eggs)
-  
+- Milo
 
 ### dessert
 - Yole (frozen yoghurt, various outlets)
@@ -55,15 +62,25 @@ Timbre+ -- good night time hangout -- there's a band and food and stuff.
     - https://sethlui.com/best-korean-bingsus-singapore/
     - https://shopee.sg/blog/best-bingsu-places-singapore/
 - Bengawan Solo 
-- Rochor beancurd 
+- Rochor beancurd
+- Chendol
 
 ### Bubble tea
 - Koi
 - Playmade
 - Gongcha
 - LiHo
+- ChiCha - dongding oolong is good
+- HeyTea - pioneer of cheese foam tea
 
 ## Clubs and bars
 - Marquee - club with slide and ferris wheel
 - Operation dagger - quite cool drinks
+- Jigger & Pony - #2 bar in Asia
+- Analogue
+- Bar Stories (craft cocktails)
+- Long Bar at Raffles Hotel (where Singapore Sling was created; very touristy)
+- Nutmeg & Clove
+- Atlas
+- Manhattan Bar
 
